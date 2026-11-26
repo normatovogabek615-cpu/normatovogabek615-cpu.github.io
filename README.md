@@ -1,0 +1,1 @@
+# normatovogabek615-cpu.github.io
